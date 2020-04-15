@@ -1,1 +1,1 @@
-# 1c_interview_task
+NU, YA PblTALSYA ¯\_(ツ)_/¯
